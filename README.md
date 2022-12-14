@@ -8,4 +8,5 @@ Davis, Angela, actor. Angela J. Davis on racial disparities in. 2014, www.youtub
 Reche, Daniel. “Mental Health.” Pexels, 20 Jan. 2020, https://www.pexels.com/photo/gray-scale-photo-of-man-covering-face-with-his-hands-3601097/. 
 
 Kurti, Zhandarka, and Jarrod Shanahan. “Carceral Non-Profits and the Limits of Prison Reform.” ACME: An International E-Journal for Critical Geographies, vol. 20, no. 6, Nov. 2021, pp. 597–617. EBSCOhost, https://search.ebscohost.com/login.aspx?direct=true&db=a9h&AN=154575463&site=eds-live .
+
 David Kim's citation for image (The image was ripped from their website so I'm citing that.): FAMM, famm.org.
